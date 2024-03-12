@@ -1,0 +1,2 @@
+# mastimajak
+fun
